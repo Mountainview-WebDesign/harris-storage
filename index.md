@@ -3,7 +3,7 @@ layout: page
 comments: false
 ---
 
-# Harris Rentals
+# Harris Storage
 
 (254-592-6774)
 
