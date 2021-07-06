@@ -17,11 +17,13 @@ Please give me a call today. 254-592-6774
 
 ## Sizes/Rates
 
-8x12- $40
+8x8- $45
 
-10x10- $45
+8x12- $50
 
-10x24- $65
+10x10- $60
+
+10x24- $85
 
 Please call for current sizes available
 
